@@ -27,5 +27,8 @@
  💚
  
  - [Clique aqui para mais 💚](https://github.com/agtonclemente)
+
+Peço 🙏 imensas desculpas este repositório está uma coisa! 💩
+Vou melhorá-lo brevemente! 👍
  
  
